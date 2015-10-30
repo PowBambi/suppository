@@ -7,3 +7,5 @@ SESEME STREET GANG is adding an autist girl. I can't wait till she has a shitfit
 
 LETS SING THE ABC'S!
 A B C D E F RRRRRRRREEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
+
+REEEEEEEEEEEEEE I keep on getting blues. Oh so now we are working on a powerpoint worth 75 fuckin points. It's about 3 alternatives for halloween candy. I know. 
