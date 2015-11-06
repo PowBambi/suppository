@@ -11,3 +11,5 @@ A B C D E F RRRRRRRREEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 REEEEEEEEEEEEEE I keep on getting blues. Oh so now we are working on a powerpoint worth 75 fuckin points. It's about 3 alternatives for halloween candy. I know. 
 
 8:58 am. 11/2/15. 7 minutes left of class. Working on homework, failing. Will do later. Listening to I can't wait to be sad and alone on the edge of the universe.6 minutes left of class. These earbuds are not bad. It's 8:59 am and I already have a headache. makes me sad. Probably sinus headache. Sometimes my back gets shoots of pain. I didn't want to come to school today. 9:00 am. At least no school tomorrow. That will be nice.
+
+Trump may be a democrat because he is bismirching the Republicans. He is looking like a guy hand delivered by the democrats.
