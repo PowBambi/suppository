@@ -15,3 +15,4 @@ REEEEEEEEEEEEEE I keep on getting blues. Oh so now we are working on a powerpoin
 Trump may be a democrat because he is bismirching the Republicans. He is looking like a guy hand delivered by the democrats.
 
 Adam you said all night lie 
+ok kid so we play l4d 2 is was fun k buye
