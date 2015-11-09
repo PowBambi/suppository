@@ -16,3 +16,4 @@ Trump may be a democrat because he is bismirching the Republicans. He is looking
 
 Adam you said all night lie 
 ok kid so we play l4d 2 is was fun k buye
+logan is gay
