@@ -19,3 +19,5 @@ ok kid so we play l4d 2 is was fun k buye
 logan is gay
 logan is gay still lolk
 logan has FO4. Today is 11/10/15, 12:46 pm, Period M3. Science. I took a science test. i got a B. I have to do a worksheet. k bye.
+
+11/11/15 french class g1 8:34 am. Logan stop fucking commenting. 
